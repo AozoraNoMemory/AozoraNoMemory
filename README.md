@@ -13,7 +13,7 @@ $\color{#5f76ad}{\textbf{ “ I just wish for your sky to remain blue ”}}$
 <div align="center">
   
 [ᴀᴛᴀ](https://aozoranomemory.atabook.org/)
-⠀[sᴛʀᴀᴡ](https://mrfestival.straw.page/)
+⠀[sᴛʀᴀᴡ](https://aozora-no-memory.straw.page/)
 ⠀[ᴘʀɴs](https://en.pronouns.page/@MrFestival)
 
 
