@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center">
+<img src="https://file.garden/aPvAQU9PkXWKuMWE/Untitled220_20251024185145.png" data-canonical-src="(https://file.garden/aPvAQU9PkXWKuMWE/Untitled220_20251024185145.png)"width="700" height="600">
+</p>
+  
+  <p align="center">   
+$\color{#5f76ad}{\textbf{ “ I just wish for your sky to remain blue ”}}$
+</p>
 
-<!--
-**AozoraNoMemory/AozoraNoMemory** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://file.garden/aPvAQU9PkXWKuMWE/image41.png" data-canonical-src="(https://file.garden/aPvAQU9PkXWKuMWE/image41.png)"
+</p>
 
-Here are some ideas to get you started:
+<div align="center">
+  
+[ᴀᴛᴀ](https://leaderoffestivals.atabook.org/)
+⠀[sᴛʀᴀᴡ](https://mrfestival.straw.page/)
+⠀[ᴘʀɴs](https://en.pronouns.page/@MrFestival)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center">
+<img src="https://file.garden/aPvAQU9PkXWKuMWE/cinnamoroll-6.webp" data-canonical-src="(https://file.garden/aPvAQU9PkXWKuMWE/cinnamoroll-6.webp)"
+</p>
