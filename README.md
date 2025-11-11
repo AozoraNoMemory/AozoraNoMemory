@@ -18,7 +18,7 @@ $\color{#5f76ad}{\textbf{ “ I just wish for your sky to remain blue ”}}$
 
 <div align="center">
   
-[Cᴏᴍɪssɪᴏɴ Iɴғᴏ](https://cielscomms.carrd.co/)
+[Cᴏᴍᴍɪssɪᴏɴ Iɴғᴏ](https://cielscomms.carrd.co/)
 ⠀[💌](https://rentry.co/LettersFromTheBlueSky)
 
 
