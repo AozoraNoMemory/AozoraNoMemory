@@ -7,6 +7,8 @@ $\color{#ED696E}{\textbf{ “ Now, time for us to try getting along together. �
 <img width="300" height="13" alt="8b59f41a" src="https://github.com/user-attachments/assets/bd5fc096-e23c-4b67-a69b-c48aab05083e" />
 </p>
 ⠀
-<p align="center">
-[ATA](https://aozoranomemory.atabook.org/)
-</p>
+<div align="center">
+  <a href="https://aozoranomemory.atabook.org/">〔atabook〕</a> ♡ 
+  <a href="https://aozora-no-memory.straw.page/">〔strawpage〕</a> ♡
+  <a href="https://en.pronouns.page/@AozoraNoMemory">〔prnspage〕</a>
+</div>
