@@ -1,10 +1,10 @@
-<img width="1920" height="1080" alt="videoframe_748266" src="https://github.com/user-attachments/assets/f8be8cc2-1144-481f-9c8e-16b1bfc217de" />
+<img width="1920" height="1080" alt="willmesh" src="https://file.garden/aPvAQU9PkXWKuMWE/Lost_kitty_episode_36_cg__282_29.png" />
  <p align="center">
-$\color{#ED696E}{\textbf{ “ Now, time for us to try getting along together. ”}}$
+$\color{#E48C95}{\textbf{ “ I hate the thought of a world without you! ”}}$
 </p>
 ⠀
  <p align="center">
-<img width="300" height="13" alt="8b59f41a" src="https://github.com/user-attachments/assets/bd5fc096-e23c-4b67-a69b-c48aab05083e" />
+<img width="544" height="19" alt="tumblr_0f4718e9a5a8e069e7fb0b6a7c2b706d_647f2bfc_1280" src="https://github.com/user-attachments/assets/d8f48532-b074-4c6b-9835-2d2d99574722" />
 </p>
 ⠀
 <div align="center">
@@ -12,3 +12,4 @@ $\color{#ED696E}{\textbf{ “ Now, time for us to try getting along together. �
   <a href="https://aozora-no-memory.straw.page/">〔strawpage〕</a> ♡
   <a href="https://en.pronouns.page/@AozoraNoMemory">〔prnspage〕</a>
 </div>
+
