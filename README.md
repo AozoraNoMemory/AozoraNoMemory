@@ -1,6 +1,6 @@
 <img width="1920" height="1080" alt="willmesh" src="https://file.garden/aPvAQU9PkXWKuMWE/Lost_kitty_episode_36_cg__282_29.png" />
  <p align="center">
-$\color{#E48C95}{\textbf{ “ I hate the thought of a world without you! ”}}$
+$\color{#FC93A4}{\textbf{ “ I hate the thought of a world without you! ”}}$
 </p>
 ⠀
  <p align="center">
