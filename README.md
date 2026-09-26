@@ -1,11 +1,14 @@
-<img width="1920" height="1080" alt="willmesh" src="https://file.garden/aPvAQU9PkXWKuMWE/Lost_kitty_episode_36_cg__282_29.png" />
  <p align="center">
-$\color{#FC93A4}{\textbf{ “ I hate the thought of a world without you! ”}}$
+$\color{#E0A34C}{\textbf{ “ I wonder, can you hear my wishes for you? ”}}$
 </p>
-⠀
+
+![](https://file.garden/aPvAQU9PkXWKuMWE/tumblr_b9cdf7386c14efe4ad07b6fa7d515ba7_sb1b3d604_2048.png)
+
  <p align="center">
-<img width="544" height="19" alt="tumblr_0f4718e9a5a8e069e7fb0b6a7c2b706d_647f2bfc_1280" src="https://github.com/user-attachments/assets/d8f48532-b074-4c6b-9835-2d2d99574722" />
+$\color{#EFCF7F}{\textbf{ “ I wonder, can you see how I love you? ”}}$
 </p>
+
+[![divider](https://file.garden/aPvAQU9PkXWKuMWE/sdsdsdsd.png)
 ⠀
 <div align="center">
   <a href="https://aozoranomemory.atabook.org/">〔atabook〕</a> ♡ 
